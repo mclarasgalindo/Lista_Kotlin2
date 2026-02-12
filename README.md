@@ -1,4 +1,5 @@
 # Lista_Kotlin2
+
 1. https://pl.kotl.in/CfCbH_SYk
 2. https://pl.kotl.in/5Jw7yFC1R
 3. https://pl.kotl.in/OvMN9osd7
@@ -8,6 +9,19 @@
 7. https://pl.kotl.in/cNgHfjcIy
 8. https://pl.kotl.in/gGBo68IQP
 9. https://pl.kotl.in/lSjwCE9Dl
-10. https://pl.kotl.in/0ppV6b0H_
+10. https://pl.kotl.in/0ppV6b0H
 11. https://pl.kotl.in/ijt6TR954
-12. 
+12. https://pl.kotl.in/b4TAgDXnT
+13. https://pl.kotl.in/Dyy9ogn0l
+14. https://pl.kotl.in/PWXqDNx4k
+15. https://pl.kotl.in/57mH6MkBE
+16. https://pl.kotl.in/p8GdPph2t
+17. https://pl.kotl.in/Q15E4F5x_
+18. https://pl.kotl.in/0XxEFEiml
+19. https://pl.kotl.in/uXzsIwBaz
+20. https://pl.kotl.in/tvaclFaDD
+21. https://pl.kotl.in/0fhAyxgF6
+22. https://pl.kotl.in/ULR0SCSyv
+23. https://pl.kotl.in/Rc4zLNuX5
+24. https://pl.kotl.in/YfVUGw8cd
+25. https://pl.kotl.in/mBYd98biC
